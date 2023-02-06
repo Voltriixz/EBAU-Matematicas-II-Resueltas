@@ -16,4 +16,4 @@ Pulsando en cada uno de los siguientes enlaces irás al cuadro del enunciado y s
 
 Los exámenes de Matemáticas II de la Comunidad de Castilla León han sido realizados por:
 
-D. Antonio Menguiano Corbacho, Profesor de Matemáticas (Jubilado) del IES Castelar de Badajoz. Su dirección de correo es " a.menguiano@hotmail.com ", por si queréis comentarle algo.
+D. Antonio Menguiano Corbacho, Profesor de Matemáticas (Jubilado) del IES Castelar de Badajoz. Su dirección de correo es "a.menguiano@hotmail.com", por si queréis comentarle algo.
